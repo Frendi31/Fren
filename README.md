@@ -1,0 +1,2 @@
+# Fren
+Manusia biasa
